@@ -4,3 +4,5 @@ me too!!!
 Jal hea JJOm!!!--+
 I'm trying
 :-
+
+take your time you'll get it!  You are the greatest!!! Himnae!!
